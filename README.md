@@ -35,9 +35,14 @@ TaskMate acts as a steadfast companion for achieving personal organization witho
 
 Contributors
 
-	امل
+	امل ابراهيم علي عسيري  / 444806580
+
+	فاطمه حسن محمد عسيري  / 444816160
+
+	حاليه حسن ناصر / 444813641
 
 to contact us
 
 444806580@kku.edu.sa
+
 
